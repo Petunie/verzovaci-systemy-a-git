@@ -1,4 +1,4 @@
-# Čtyři koťata
+# Čtyři košťata
 
 Bumtarata na vrata,
 máme čtyři koťata.
